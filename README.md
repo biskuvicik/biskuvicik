@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @biskuvicik
+- 👀 I’m interested in game development
+- 🌱 I’m currently learning Blender
+- 📫 How to reach me @ibrahiimsozen on Instagram
